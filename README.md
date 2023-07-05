@@ -1,1 +1,1 @@
-My first readme
+read the damn menu!
